@@ -1,5 +1,5 @@
 - 👋 OLÁ !!! EU SOU O VITOR COSTA
-- 👀 trabalho atualmente como auxiliar de t.i
+- 👀 trabalho de auxiliar de t.i
 - 🌱 Estudando de ADS
 - 😄 Pronomes: Ele/Dele
 
